@@ -114,3 +114,19 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+### Chocolate Peanut Butter Protein Bars
+
+Ingredients:
+- 3/4 cup peanut butter
+- 1/2 cup vanilla protein powder
+- 2 tablespoons pure maple syrup
+- 1 teaspoon vanilla extract
+- 1/8 teaspoon salt
+- 1/2 cup semisweet chocolate chips
+- 1 teaspoon coconut oil
+
+Instructions:
+1. Line an 8 1/2x4 1/2-inch loaf pan with parchment paper, leaving overhang on all sides to make it easy to remove bars from the pan. Set aside.
+2. Place peanut butter, protein powder, maple syrup, vanilla and salt in a bowl and mix until well combined; press into the prepared pan. Set aside.
+3. Place chocolate chips and oil in a microwave safe bowl. Microwave for 30 seconds, stir. Repeat until chips are completely melted when stirred. Pour over bars, smooth chocolate. Refrigerate until set, about 30 minutes. Cut into 8 bars.
