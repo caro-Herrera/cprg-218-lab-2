@@ -9,6 +9,7 @@
     - [Grilled Chicken Sandwich](#grilled-chicken-sandwich)
 - [Desserts](#desserts)
     - [Chocolate Chip Cookies](#chocolate-chip-cookies)
+    - [Chocolate Peanut Butter Protein Bars](#chocolate-peanut-butter-protein-bars)
 
 ## Appetizers
 ### Spinach and Artichoke Dip
